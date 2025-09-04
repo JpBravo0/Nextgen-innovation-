@@ -27,3 +27,17 @@ Pasatiempo: jugar videojuegos
 Curso favorito del segundo ciclo: Calculo diferencial
 
 Area biomedica: Ingenieria clinica
+
+
+
+2-. Juan Pablo Bravo
+Foto
+Edad:17 años
+
+Pasatiempo: jugar videojuegos
+
+Curso favorito del segundo ciclo : Química General
+
+Área Biomédica: Biomateriales y tejidos
+
+
